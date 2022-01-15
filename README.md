@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Liudmyla.
 - 👀 I’m interested in QA
-- 🌱 I’m currently learning 
+- 🌱I'm currently learning this profession
 - 📫 How to reach me https://www.linkedin.com/in/liudmyla-udovychenko-a9ba07228 and 
 
 <!---
